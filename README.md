@@ -5,6 +5,6 @@ Following github's tutorial thing here. Getting my personal repo started cus it'
 I enjoy challenges and problem solving and find algorithms fun. I love trees and ceramics/scultping is my passion. 
 
 
-Peace ✌ ,
-Susanna
+Peace ✌ ,  
+Susanna   
 aka Z
